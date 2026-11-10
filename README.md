@@ -61,8 +61,25 @@ J'ai mis une image
 Ah oui de ki 
 
 
-tu verras dans le dossier github 
+tu verras dans le dossier github ici https://github.com/amongusbat0-ai/Baptiste-Project/blob/main/jedi-sith-who-would-defeat-contend-with-palpatine-v0-x6rf6sc826qc1.webp
 
 
 
 ok 
+
+
+
+
+J'ai vue mais c'est qui 
+
+
+
+un méchant dans star wars 
+
+
+
+Ok 
+
+
+
+
